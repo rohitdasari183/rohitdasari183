@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rohitdasari183
 - 👀 I’m interested in .coding..
-- 🌱 I’m currently learning ..cse first year at WIT Solapur.
+- 🌱 I’m currently learning ..cse second year at WIT Solapur.
 - 💞️ I’m looking to collaborate on ..coding.
 - 📫 How to reach me .email..
 
